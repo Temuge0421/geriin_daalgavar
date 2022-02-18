@@ -1,1 +1,0 @@
-# geriin_daalgavar.html
